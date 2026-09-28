@@ -1,0 +1,1 @@
+# Snaplr-Full-Version-Unlocked
